@@ -18,7 +18,7 @@ O app não armazena nenhuma informação sensível e não requer login, cadastro
 
 ## Contato
 
-Se você tiver dúvidas sobre esta Política de Privacidade, entre em contato pelo e-mail: **seuemail@exemplo.com**
+Se você tiver dúvidas sobre esta Política de Privacidade, entre em contato pelo e-mail: **mauriciobrambila2015@gmail.com**
 
 ---
 
